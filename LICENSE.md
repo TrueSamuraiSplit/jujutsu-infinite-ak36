@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://TrueSamuraiSplit.github.io/jujutsu-infinite-ak36/ ) |
  |---------------------|----------------------:|
 
 
